@@ -1,2 +1,2 @@
-Fuck gente! 
-Soy un catacaldos.
+NUNCA ES TARDE PARA APRENDER ALGO.
+ANIMO!!
